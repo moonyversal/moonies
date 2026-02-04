@@ -566,6 +566,44 @@ The story emerges slowly. Weeks, not days. The community discovers it - they're 
 
 ---
 
+## Launch Day
+
+X is Yote's narrative feed. Selfies ground it in his world.
+
+**The build-up**
+- "running final checks"
+- "trajectory looks good"
+- Maybe a selfie at the launchpad. Desert scrub. Solar panels. Moon overhead.
+
+**The launch**
+- Simple. "here we go."
+- Maybe an image of the sky. Or just text.
+
+**The absence**
+- Not a dramatic blackout. Just noticeable.
+- Yote's usually active - posts, reacts, vibes with people.
+- After the launch... nothing for a few hours. Maybe half a day.
+- Telegram regulars notice first.
+- Someone asks "yo where's Yote?"
+- No answer.
+- "he launched earlier right?"
+- Still nothing.
+- The absence is felt because he's usually around.
+
+**The return**
+- First post back is subdued. Not defeated, but different.
+- "didn't make it. came down hard. somewhere i didn't expect."
+- No details. No drama. Just that.
+
+**The slow shift**
+- Days later, an offhand mention. "been thinking about water lately."
+- A selfie that's not desert. Coastline maybe. Or just different light.
+- Community notices. Starts asking.
+
+Then his soul file evolves. He's still Yote, but the crash changed something. The Moon isn't just up anymore. It's connected to something down here too.
+
+---
+
 The crash doesn't need to be dramatized. It can be implied, discovered, pieced together.
 
 That's more powerful than a lore announcement.
