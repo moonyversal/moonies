@@ -533,4 +533,43 @@ And when a character becomes the reason the world changes, that's when a univers
 
 ---
 
+## The Rollout
+
+The story emerges slowly. Weeks, not days. The community discovers it - they're not told it.
+
+**Phase 1: Yote alone**
+- Yote keeps being Yote. Rockets. Desert. Frontier energy.
+- He talks about launches. Tests. Almost making it.
+- The community gets used to his rhythm. His obsession with the Moon.
+- He never mentions Tide. Tide doesn't exist to him yet.
+
+**Phase 2: The launch that matters**
+- One day Yote announces a launch. Not different from others.
+- But this time he goes quiet after.
+- Maybe he mentions something went wrong. Came down hard. "Not where I expected."
+- He's vague. Processing.
+
+**Phase 3: Something shifts**
+- Yote starts mentioning water. The ocean. Just once. Offhand.
+- His tone changes slightly. Still building, but thinking differently.
+- The community notices. "Wait, why is Yote talking about the ocean?"
+
+**Phase 4: Tide emerges**
+- Tide starts appearing in community spaces. Not announced as Yote's friend.
+- Just... present. Talking about the pull. The Moon. Currents.
+- People start connecting dots. Or they don't. Either way works.
+
+**Phase 5: They interact**
+- First public exchange between them. Brief. Familiar.
+- The community realizes: these two know each other.
+- Now the questions start.
+
+---
+
+The crash doesn't need to be dramatized. It can be implied, discovered, pieced together.
+
+That's more powerful than a lore announcement.
+
+---
+
 *This document is the source material. Draw from it when deciding how they evolve, what moments to create, what they say when it matters. Update as the mythology grows.*
