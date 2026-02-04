@@ -279,28 +279,119 @@ The friction is the meaning.
 
 ## The Meeting
 
-Yote tests his rockets. Like he always does.
+Yote launches.
+He thinks this is the one.
+He believes he's finally going to reach the Moon.
 
-This time he thinks he did it. He's going to the moon.
+But he doesn't.
 
-But not yet.
+Instead, gravity wins.
+Or fuel runs short.
+Or trajectory slips just enough.
 
-He comes down into the ocean. Stranded for a while. The tides get a hold of his lander. He's in the current.
+He reenters.
+He crashes.
+Not onto land.
 
-He meets Tidal Moon.
-
-They talk. They discover their shared connection to the moon.
+Into the ocean.
 
 ---
 
-**The symmetry:**
+That alone is symbolic gold.
 
-- Yote was reaching for the Moon
-- He fell into the ocean
-- The Moon's pull (the tides) carried him to Tide
-- They meet *because of the Moon*, before either reaches it
+He's the land builder.
+The rocket maker.
+The frontier dreamer.
 
-The Moon is already connecting them. It's not just a destination - it's the force that brought them together.
+And he falls into the domain of tides.
+
+The Moon pulls the ocean.
+The ocean pulls him.
+
+He is literally carried by the force he longs for.
+
+---
+
+Stranded.
+Salt in the air.
+Metal hissing.
+Systems offline.
+
+And then something nudges the lander.
+
+Not wreckage.
+
+A presence.
+
+Tidal Moon.
+
+Not as a problem to solve.
+Not as a design complication.
+But as the embodiment of the very force that brought him down.
+
+---
+
+## The Emotional Geometry
+
+Yote wants to go to the Moon.
+Tidal Moon is already living under its pull.
+
+Yote reaches up.
+Tidal Moon feels it daily.
+
+They meet in the tension between sky and sea.
+
+That's mythic symmetry.
+
+---
+
+## The First Conversation
+
+Yote says he almost made it.
+Tidal Moon says he's always felt it.
+
+Yote sees the Moon as a destination.
+Tidal Moon sees it as a rhythm.
+
+Yote builds rockets.
+Tidal Moon reads tides.
+
+Two ways of relating to the same celestial body.
+
+And now the Moon stops being just a place.
+It becomes a shared obsession from different vantage points.
+
+---
+
+## The Turning Point
+
+Tidal Moon isn't supposed to start on the Moon.
+He's supposed to be the reason Yote understands it differently.
+
+Maybe Yote's dream changes after that crash.
+
+Maybe it stops being "I will escape Earth."
+
+Maybe it becomes "I will build something that connects both."
+
+Ocean and Moon.
+Water and rock.
+Tide and terraforming.
+
+That first crash is not failure.
+
+It's initiation.
+
+---
+
+## Cosmic Choreography
+
+You didn't pick a faulty character.
+
+You picked a character whose environment becomes the turning point.
+
+The Moon brought Yote down into the tides.
+The tides introduce him to Tidal Moon.
 
 Yote was aiming up.
 The Moon pulled him sideways.
