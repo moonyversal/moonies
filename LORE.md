@@ -566,7 +566,9 @@ The story emerges slowly. Weeks, not days. The community discovers it - they're 
 
 ---
 
-## Launch Day
+## The Rocket Launch (Phase 2)
+
+The launch that changes everything. Not the launch of Yote as a character - the rocket launch that fails and sends him into the ocean.
 
 X is Yote's narrative feed. Selfies ground it in his world.
 
