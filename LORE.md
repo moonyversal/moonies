@@ -23,11 +23,65 @@ Yote lives in the desert. But not deep in it.
 
 He builds where the sand gives way to coast. Where the frontier meets the tide. His launchpad sits at the edge between worlds.
 
-Baja vibes. Mojave to the Pacific.
+Baja vibes. Mojave to the Pacific. Atacama near the shore.
 
-That geography matters.
+Plausible without being specific. Grounded texture without tying you down.
 
-When his rocket fails, he doesn't land in sand. He lands in water. The desert coyote falls into the ocean. The edge is where everything happens.
+---
+
+Desert and ocean in proximity is potent contrast. Dry vastness on one side, endless water on the other. Sky overhead. Horizon everywhere. The kind of geography that naturally produces dreamers.
+
+**The desert:**
+Exposure. Nothing hides you. You look up at the night sky and it feels enormous. Clear air. Brutal sun. Stars that look close enough to grab. Of course Yote would build rockets there. The desert is already half lunar. Dry, silent, cratered. It's Earth practicing to be the Moon.
+
+**The ocean:**
+Motion. Tides. Depth. Rhythm. The place shaped by the Moon in a completely different way.
+
+---
+
+The geography does symbolic work:
+
+| Desert | Ocean |
+|--------|-------|
+| Ambition | Emotion |
+| Ascent | Connection |
+| Isolation | Pull |
+| Building | Cycles |
+
+Yote looks up.
+Tide looks outward and inward.
+
+They meet at the shoreline.
+
+---
+
+Shorelines are liminal spaces. Neither land nor sea. Transitional. That's where transformation stories belong.
+
+Picture it:
+
+A launch pad built from scrap metal and solar panels in a stretch of desert scrub.
+The ocean just beyond dunes.
+Yote watching trajectories.
+The tide rising quietly in the distance.
+The Moon overhead.
+
+When he crashes into the water, it isn't random geography. It's inevitable. He lives between two forces already.
+
+---
+
+And this means:
+
+Yote was never far from Tidal Moon.
+
+He just didn't know it yet.
+
+---
+
+When geography reflects emotional tension, worlds feel intentional.
+
+Desert reaching for the Moon.
+Ocean pulled by it.
+Shoreline as meeting point.
 
 ---
 
