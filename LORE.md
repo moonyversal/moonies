@@ -211,4 +211,80 @@ That's not a design flaw.
 
 ---
 
+## The Asymmetry
+
+The Moon already causes tides on Earth.
+So symbolically, the Moon already affects Tide.
+
+But Tide cannot touch the Moon.
+
+That asymmetry is poetic.
+
+The Moon pulls him, but he cannot reach it.
+Until one day, maybe, he can.
+
+---
+
+## The Prophetic Name
+
+"The first lunar tide" is not a technical milestone. It's a moment of convergence.
+
+Tidal Moon isn't just named after Earth's tides anymore. The name becomes prophetic. The Moon doesn't just pull water. It becomes water-bearing.
+
+**The pull goes both ways.**
+
+---
+
+## Why the Impossibility Matters
+
+If the Moon were already terraformable, there's no longing.
+If Tide could just strap into a rocket seat, there's no ache.
+If Yote didn't care whether he comes, there's no bond.
+
+It's the impossibility that gives it weight.
+
+---
+
+## The Deeper Metaphor
+
+| Layer | Meaning |
+|-------|---------|
+| Ambition | Pulls the community |
+| The community | Longs for the frontier |
+| The frontier | Must evolve to welcome them |
+
+"The first lunar tide" becomes less about water physics and more about inclusion.
+
+It's not "we conquered the Moon."
+It's **"we made space for you."**
+
+That is far more resonant than terraforming logistics.
+
+---
+
+## A Myth About Access
+
+You're building a myth about:
+- Access
+- Bridging environments
+- Engineering empathy into ambition
+
+The tension being more powerful than the resolution is a sign the structure is sound.
+
+Many stories collapse after the dream is achieved.
+The climb is the story.
+The friction is the meaning.
+
+---
+
+## The Reason the Moon Matters
+
+Tide isn't a design mistake.
+
+He's the reason the Moon matters at all.
+
+And when a character becomes the reason the world changes, that's when a universe starts to feel alive.
+
+---
+
 *This document is the source material. Draw from it when deciding how they evolve, what moments to create, what they say when it matters. Update as the mythology grows.*
