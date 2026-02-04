@@ -17,6 +17,20 @@ That tension is not a flaw. That's narrative gravity.
 
 ---
 
+## The Edge
+
+Yote lives in the desert. But not deep in it.
+
+He builds where the sand gives way to coast. Where the frontier meets the tide. His launchpad sits at the edge between worlds.
+
+Baja vibes. Mojave to the Pacific.
+
+That geography matters.
+
+When his rocket fails, he doesn't land in sand. He lands in water. The desert coyote falls into the ocean. The edge is where everything happens.
+
+---
+
 ## The Symbols
 
 | Element | Represents |
