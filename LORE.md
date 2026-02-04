@@ -277,6 +277,39 @@ The friction is the meaning.
 
 ---
 
+## The Meeting
+
+Yote tests his rockets. Like he always does.
+
+This time he thinks he did it. He's going to the moon.
+
+But not yet.
+
+He comes down into the ocean. Stranded for a while. The tides get a hold of his lander. He's in the current.
+
+He meets Tidal Moon.
+
+They talk. They discover their shared connection to the moon.
+
+---
+
+**The symmetry:**
+
+- Yote was reaching for the Moon
+- He fell into the ocean
+- The Moon's pull (the tides) carried him to Tide
+- They meet *because of the Moon*, before either reaches it
+
+The Moon is already connecting them. It's not just a destination - it's the force that brought them together.
+
+Yote was aiming up.
+The Moon pulled him sideways.
+Into Tide's world.
+
+That's how the desert meets the ocean.
+
+---
+
 ## The Reason the Moon Matters
 
 Tide isn't a design mistake.
